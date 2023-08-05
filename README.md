@@ -1,7 +1,7 @@
 # Antonia
 ### Olá?😊😉
 
- Atualmente estudando Javascript<br>
+ 😙 Atualmente estudando Javascript<br>
   📧 Contate-me no email: geizaaquino@hotmail.com
   <div>
   
